@@ -1,1 +1,0 @@
-# guayaquil_turistico_video_tallersfjzpl
